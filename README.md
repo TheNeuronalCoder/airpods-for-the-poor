@@ -1,2 +1,2 @@
 # airpods-for-the-poor
-airpods for POOR people. EWWWWWW. yuck. yuck my duck! stinky!
+airpods for people who can't afford it
